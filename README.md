@@ -1,8 +1,8 @@
 <div align="center">
 
-【c+h if alone , w2i】
+「c+h if alone , w2i」
 
-【[Atabook](https://blueboy.atabook.org/) , carrd (coming soon)】
+「[Atabook](https://blueboy.atabook.org/) , carrd (coming soon)」
 
 </div>
 
