@@ -2,7 +2,7 @@
 
 「c+h if alone , w2i」
 
-「[Atabook](https://blueboy.atabook.org/) , carrd (coming soon)」
+「[Atabook](https://blueboy.atabook.org/)」
 
 </div>
 
