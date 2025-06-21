@@ -2,7 +2,7 @@
 
 「c+h if alone , w2i」
 
-「[Atabook](https://blueboy.atabook.org/)」
+「[atabook](https://blueboy.atabook.org/) , [carrd](https://balancedboy.carrd.co/)」
 
 </div>
 
