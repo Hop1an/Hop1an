@@ -1,6 +1,6 @@
 <div align="center">
 
-「c+h , free2i」
+「c+h , w2i」
 
 「[atabook](https://blueboy.atabook.org/) , [carrd](https://balancedboy.carrd.co/)」
 
