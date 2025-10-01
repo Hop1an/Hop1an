@@ -2,7 +2,7 @@
 
 「c+h , w2i」
 
-「[atabook](https://blueboy.atabook.org/) , [carrd](https://balancedboy.carrd.co/)」
+「[atabook](https://blueboy.atabook.org/) , [carrd](https://dancingboy.carrd.co/)」
 
 </div>
 
