@@ -1,9 +1,9 @@
 <div align="center">
 
-「c+h , w2i」
+*《c+h , w2i》*
 
 *《[atabook](https://blueboy.atabook.org/) , [carrd](https://dancingboy.carrd.co/)》*
 
 </div>
 
-![yo](https://cdn.discordapp.com/attachments/1163487434873512076/1426534266455588995/37058978c76163e528aa8a7316108ca9.jpg?ex=68eb9310&is=68ea4190&hm=ee165d1a353356e9facca399af288bb8c92bd0ddf12b86a2a2f80923ab2b3689&)
+![yo](https://cdn.discordapp.com/attachments/1163487434873512076/1426917138458742845/9bd939f2bf5c9a6a74d328fef8b45437.jpg?ex=68ecf7a4&is=68eba624&hm=e9ac05ccb54f5ae41b618d895b55378e75e1ce8a7cb76e556bebfd003887f15e&)
