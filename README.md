@@ -1,4 +1,4 @@
-⁶<div align="center">
+<div align="center">
 
 *《c+h , w2i》*
 
